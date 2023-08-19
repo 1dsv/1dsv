@@ -1,8 +1,5 @@
-# ABOUT MY GITHUB ACCOUNT
-I post roblox scripts and script leaks (most of the leaks is not mine)
+# real
 
-# DISCORD SERVER
-(coming soon)
 
 <!---
 1dsv/1dsv is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
