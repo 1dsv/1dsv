@@ -1,4 +1,4 @@
-# ABOUT MY ACCOUNT
+# ABOUT MY GITHUB ACCOUNT
 I post roblox scripts and script leaks (most of the leaks is not mine)
 
 # DISCORD SERVER
